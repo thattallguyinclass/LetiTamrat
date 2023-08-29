@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LetiTamrat
+- 👀 I’m interested in Coding and Graphic Design
+- 🌱 I’m currently learning In Addis Ababa Universty in Software engineering
